@@ -12,5 +12,9 @@ https://drive.google.com/drive/folders/1DXdhHseW95trb3jMu_BDfUOH_AaoAQpD
 I have used the following sources to increase information and help in writing the article
 https://drive.google.com/drive/folders/1Dz4afFzcKV62Gj_O4R661pdCU5DMt57g
 
+The percentage of similarity measurement and the use of artificial intelligence is also in the link below https://drive.google.com/drive/folders/1AW6oCvcpoZkjm0KTJAdvj3HXu8DUAGf -  
+
+orcid.org :  0009-0009-7632-6246
+
 If you have any questions, send a message to the email below
 Fatemeashrafnejad2002@gmail.com
